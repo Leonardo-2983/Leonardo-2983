@@ -1,4 +1,4 @@
-- 👋 Hi, je su @Leonardo#2983 👀
+- 👋 Hi, je suis @Leonardo#2983 👀
 - 🌱 Rejoindre mon discord ici : https://discord.gg/36HTheGbC9 📫
 
 <!---
