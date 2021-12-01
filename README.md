@@ -1,5 +1,5 @@
 - 👋 Hi, je suis @Leonardo#2983 👀
-- 🌱 Rejoindre mon discord ici : https://discord.gg/36HTheGbC9 📫
+- 🌱 Rejoindre mon discord ici : ... 📫
 
 <!---
 Leonardo-2983/Leonardo-2983 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
